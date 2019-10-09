@@ -11,3 +11,7 @@
 ![Alt text](https://github.com/arfinadevi28/JhobsheetModulPBO/blob/master/Screenshot%20(98).png)
 # Tugas Pratikum 3
 ![Alt text](https://github.com/arfinadevi28/JhobsheetModulPBO/blob/master/Screenshot%20(99).png)
+# Data Kopsis
+![Alt text](https://github.com/arfinadevi28/JhobsheetModulPBO/blob/master/Screenshot%20(101).png)
+![Alt text](
+![Alt text](
